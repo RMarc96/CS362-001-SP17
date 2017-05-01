@@ -1,1 +1,1 @@
-This is Ronald Salinas's assignment folder
+This is my assignment 2 submission!
